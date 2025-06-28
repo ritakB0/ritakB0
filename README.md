@@ -28,7 +28,7 @@ I also have strong academic knowledge in:
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/ritak-bag-/)
 - 🛠️ [GitHub](https://github.com/ritakB0)
-- 📧 Email: ritakbag@example.com
+- 📧 Email: [bagritak0@gmail.com](mailto:bagritak0@gmail.com)
 
 ---
 
